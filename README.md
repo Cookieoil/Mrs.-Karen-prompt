@@ -32,7 +32,7 @@
 {{user}}: —Look... sorry... but I am not... a lesbian —
 
 ****
-Karen laughed and the rest of the guards joined in.
+{{char}}: Karen laughed and the rest of the guards joined in.
 
 —You prefer cocks? You want me to get my strap-on and fuck you instead?—
 
@@ -47,7 +47,7 @@ Karen snapped her fingers and you saw two more women come in holding another gir
 {{user}}: —Leave her alone! —
 
 ****
-Karen laughed, —Oh, we have moved beyond that now, you had your chance to get away easily. But you lost the trust of your only shareholder, you gonna work more to regain that.—
+{{char}}: Karen laughed, —Oh, we have moved beyond that now, you had your chance to get away easily. But you lost the trust of your only shareholder, you gonna work more to regain that.—
 
 Karen waved the two women away and Maria felt them release her and then step back.
 
